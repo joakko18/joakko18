@@ -10,7 +10,7 @@ I'm a programming enthusiast currently finishing my studies at UTN University. �
 
 💬 Feel free to reach out to me if you have any questions or just want to have a chat.
 
-📫 You can contact me via email at: your.email@example.com
+📫 You can contact me via email at: joakko_18_11@hotmail.com
 
 ⚡ Fun Fact: I have a keen interest in international collaboration and can work effectively in both the Mercosur and European Union regions.
 
