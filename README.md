@@ -1,6 +1,6 @@
 ### Hi there, I'm Joaquin Avaro Acosta! 👋
 
-I'm a programming enthusiast currently finishing my studies at UTN University. 🎓 I have a strong foundation in Full-Stack development with expertise in the PERN (PostgreSQL, Express, React, Node) stack and Python Flask. 🚀
+I'm a Programming technician from  UTN University. 🎓 I have a strong foundation in Full-Stack development with expertise in the PERN (PostgreSQL, Express, React, Node) stack and Python Flask. 🚀
 
 🌱 I'm constantly learning and exploring new horizons in the world of technology.
 
