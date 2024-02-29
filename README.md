@@ -12,6 +12,6 @@ I'm a Programming technician from  UTN University. 🎓 I have a strong foundati
 
 📫 You can contact me via email at: joakko_18_11@hotmail.com
 
-⚡ Fun Fact: I have a keen interest in international collaboration and can work effectively in both the Mercosur and European Union regions.
+⚡  I have a keen interest in international collaboration and can work effectively in both the Mercosur and European Union regions.
 
 Thank you for visiting my profile! 🌟
