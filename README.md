@@ -12,6 +12,6 @@ I'm a Programming technician from  UTN University. 🎓 I have a strong foundati
 
 📫 You can contact me via email at: joakko_18_11@hotmail.com or at +306940702320
 
-⚡  Currently en European Union but I am open to work worldwide.
+⚡  Currently in European Union but I am open to work worldwide.
 
 Thank you for visiting my profile! 🌟
